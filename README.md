@@ -1,0 +1,2 @@
+# Oni
+oni abi koşarkene
